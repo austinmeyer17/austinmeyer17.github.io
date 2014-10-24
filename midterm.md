@@ -1,7 +1,7 @@
 1.) 
 
-![Armored Vehicle Map](http://i.imgur.com/SrWo72j.png)
-![Map](http://i.imgur.com/JM1G6os.png)
+![Armored Vehicle Map](http://i.imgur.com/oY3Oct6.png?1)
+![Map](http://i.imgur.com/4oDtNde.png?1)
      
      
 2.) 
