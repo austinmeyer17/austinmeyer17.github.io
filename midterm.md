@@ -8,3 +8,7 @@
 
 ![d](http://i.imgur.com/XaNHuSS.png)
 ![d](http://i.imgur.com/NW5k9rE.png)
+
+3.)
+! [gun county](http://i.imgur.com/1FGdpT2.png)
+
