@@ -5,3 +5,6 @@
      
      
 2.) 
+
+![d](http://i.imgur.com/XaNHuSS.png)
+![d](http://i.imgur.com/NW5k9rE.png)
