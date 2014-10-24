@@ -13,3 +13,9 @@
 
 ![gun county](http://i.imgur.com/0t1QS97.png?1)
 
+4.) 
+
+5.) 
+
+![d](http://i.imgur.com/iUqeLgW.png?2)
+![d](http://i.imgur.com/oc0E5RN.png?1)
