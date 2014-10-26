@@ -11,7 +11,7 @@
 
 3.)
 
-![gun county](http://i.imgur.com/0t1QS97.png?1)
+![gun county](http://i.imgur.com/YQlj8x5.png?1)
 
 4.) 
 
