@@ -19,3 +19,9 @@
 
 ![d](http://i.imgur.com/iUqeLgW.png?2)
 ![d](http://i.imgur.com/oc0E5RN.png?1)
+
+6.) 
+
+![d](http://i.imgur.com/FeFZuqb.png?1)
+![d](http://i.imgur.com/6JGLuaS.png?1)
+
