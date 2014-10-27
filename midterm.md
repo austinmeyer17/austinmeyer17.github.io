@@ -38,3 +38,8 @@ List continues
 
 8.) 
 
+![d](http://i.imgur.com/dktTpwi.png?1)
+![d](http://i.imgur.com/GokyJnC.png?1)
+![d](http://i.imgur.com/qIQmHy8.png?1)
+![d](http://i.imgur.com/9DFEznA.png?1)
+
