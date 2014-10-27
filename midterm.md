@@ -56,7 +56,9 @@ So I started playing around with the data and used a pivot table to find the ave
 
 ![pivot table](http://i.imgur.com/qIQmHy8.png?1)
 
-I then exported this back into my main spreadsheet and added the KML state boundaries so I could map the data in a fusion table.  ![spreadsheet](http://i.imgur.com/GokyJnC.png?1)
+I then exported this back into my main spreadsheet and added the KML state boundaries so I could map the data in a fusion table.
+
+![spreadsheet](http://i.imgur.com/GokyJnC.png?1)
 
 The resulting map looked like this:
 
